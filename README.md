@@ -8,4 +8,4 @@ Perkenalkan nama saya **MARGOHAN L. SIRINGO-RINGO**.<br>
 
 🌱 Saya juga seorang [Asistant LePKom Gunadarma](https://vm.lepkom.gunadarma.ac.id/) 2024.<br>
 
-💬 Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/MargohanL23/) ku ya.
+💬 Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/margohanlsiringo/) ku ya.
