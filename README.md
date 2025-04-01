@@ -2,11 +2,13 @@
 
 Perkenalkan nama saya **MARGOHAN L. SIRINGO-RINGO**.<br>
 
-😄 Saya seorang **IT FANATIC** di [Universitas Gunadarma](https://www.gunadarma.ac.id/).<br>
+👨🏻‍💻 Saya seorang **IT ENTHUSIAST** di [Universitas Gunadarma](https://www.gunadarma.ac.id/).<br>
 
-🤔 Saya mempunyai kemampuan di bidang ML dan SAP Building Apps [Sertifikasi dari ASEAN DATA SCIENCE](https://drive.google.com/file/d/10VrJNvr9L2rwPobXdHV5frrJlupv0vjq/view?usp=drive_link).<br>
+🤔 Saya mempunyai kemampuan di bidang: 
+- Machine Learning Engineer [Setifikat DBS FOUNDATION](https://drive.google.com/drive/folders/10RhdIeCWY58esISo7z6W-95eR7CWZPUF).<br>
+- SAP Building Apps [Sertifikasi dari ASEAN DATA SCIENCE](https://drive.google.com/file/d/10VrJNvr9L2rwPobXdHV5frrJlupv0vjq/view?usp=drive_link).<br>
 
-🌱 Saya juga seorang [Asistant LePKom Gunadarma](https://vm.lepkom.gunadarma.ac.id/) 2024.<br>
+🛠️ Saya juga seorang [Asistant LePKom Gunadarma](https://vm.lepkom.gunadarma.ac.id/) 2024.<br>
 
 💬 Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/margohanlsiringo/) ku ya.
 
